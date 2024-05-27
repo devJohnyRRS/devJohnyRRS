@@ -17,4 +17,4 @@ Grande vontade de aprender! E mudar o mundo através da tecnologia 🥰
 
 ## Entre em contato:
 
-- johnyrichard708@gmail.com
+- johnyrichard213@gmail.com
